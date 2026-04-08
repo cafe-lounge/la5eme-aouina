@@ -25,7 +25,7 @@ premium alliant cuisine tunisienne, italienne et internationale dans un cadre é
 - ✅ Établissement **en activité** — zéro interruption depuis 2015
 - ✅ **Clientèle fidèle** et flux quotidien solide
 - ✅ **Recette journalière** stable et vérifiable
-- ✅ Mobilier & équipements professionnels estimés à **350 000 TND** inclus
+- ✅ Mobilier & Fond de Commerce & équipements professionnels inclus
 - ✅ Fonds de commerce **sans dettes**
 - ✅ Cession directe propriétaire — **sans intermédiaire**
 
